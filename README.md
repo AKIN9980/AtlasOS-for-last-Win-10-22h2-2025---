@@ -1,0 +1,1 @@
+# AtlasOS-for-last-Win-10-22h2-2025---
